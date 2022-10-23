@@ -1,2 +1,2 @@
-# amritaamys
+# Amrita-Soney
 hi
